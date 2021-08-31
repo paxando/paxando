@@ -1,0 +1,4 @@
+- 👋 Olá, sou o @Paxando
+- 👀 Inovar, me dedicar ao máximo no que faço e ajudar as pessoas ao meu redor. 
+- 🌱 Cursando análise e desenvolvimento de sistemas, futuro programador(ou outra área, quem sabe?). 
+- 🥍Toco guitarra.
